@@ -1,2 +1,1 @@
-# POOL
-Şimdilik öğrenci . 
+PİTON❤
